@@ -4,7 +4,7 @@ I've collected these wallpapers over a number of years and have no idea where I 
 
 ## Where Did I Get These?
 
-I find wallpapers in a number of different locations, but good places to check out include [Imgur](http://imgur.com), [Reddit](https://www.reddit.com/), [4chan](https://4chan.org/), and [Twitter](https://x.com/home).
+I find wallpapers in a number of different locations, but good places to check out include [Imgur](http://imgur.com), [Reddit](https://www.reddit.com/), [4chan](https://4chan.org/), and [Twitter (now X)](https://x.com/home).
 
 ## Ownership
 
